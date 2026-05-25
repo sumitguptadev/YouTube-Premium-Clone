@@ -70,12 +70,6 @@ https://github.com/user-attachments/assets/d74d5cc6-7992-47b9-89ff-72868e9103ac
 **Sumit Kr. Gupta**  
 
 
----
-
-## 🙌 Connect With Me
-
-- GitHub: https://github.com/your-sumitguptadev
-- LinkedIn: https://linkedin.com/in/your-sumitkguptadev
 
 ---
 
