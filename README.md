@@ -42,7 +42,11 @@ YT-Premium-Clone/
 
 
 
-https://github.com/user-attachments/assets/77710f3c-aaaa-44b3-b84b-18444448b8da
+
+
+https://github.com/user-attachments/assets/d74d5cc6-7992-47b9-89ff-72868e9103ac
+
+
 
 
 
